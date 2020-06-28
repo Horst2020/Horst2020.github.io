@@ -10,3 +10,5 @@ this novel how he refuses to go to the kindergarden after his very first day the
 
 As the autor says (in German language):
 > Ich, diese drei Buchstaben, sind der Mittelteil des Wortes Nichts
+
+<img src="https://www.suhrkamp.de/autorenfotos/300/3056_maier_andreas.jpg"/>
