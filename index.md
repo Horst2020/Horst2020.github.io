@@ -7,3 +7,6 @@ this novel how he refuses to go to the kindergarden after his very first day the
 * does not want to go to kindergarden
 * feels to be other than other children
 * loves reading books
+
+As the autor says (in German language):
+> Ich, diese drei Buchstaben, sind der Mittelteil des Wortes Nichts
